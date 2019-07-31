@@ -8,8 +8,8 @@ Xiao's Blog
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+master of public health
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[772418636@qq.com](mailto:772418636@qq.com)
